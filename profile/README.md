@@ -1,5 +1,15 @@
-# ✅ Tiranga Game Invite Code - 2757419478643 | Quick Tiranga Game Register Guide
+# ✅ Tiranga Game Invite Code - 2757419478643 
+<p align="center">
+  <a href="https://telegram.me/+qzLL3uY9Jmo2OGVl" target="_blank">
+    <img src="https://media-hosting.imagekit.io/45dd914ffdef49e3/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--05-03-2025_02_59_AM.png?Expires=1840829415&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=YRVrkL3Jpql3aC3a3ReMCDYSaUr-oxHDAZvFly~-CSRcnajKYN-DDtGvMvUDAAiS0AFfXQ3cLgU~k1L7iDI7FejLT2kJJMVztsjfri1JWrguGDJeL82Kwm6aZUi7G-MGyNV02RuH9wjNYY4VMEQH3FVCjiebJrWpbxq67YTOV4CjDNU9tRSMYuQbpDadQ4Hty8ZxQCTX7DJ8c~uB3HGUJotAsPhO68GTRJP-CsvaO5No~DwZzcpH19OQMT1YCdDVanqFxU7sa3CivNgOhJyppGFTpT-CzY0zQx93OFaTvHbv7rrnToPB0knR0uP8XEbrIup8Bothvwa3zsxkrWsEMw__" alt="Tiranga Game Invite Code" style="max-width: 100%; height: auto;">
+  </a>
+</p>
 
+<p align="center">
+  <a href="https://tirangainvitecode.in/tiranga" target="_blank">
+    <img src="https://media-hosting.imagekit.io/f32b0671b0b746ab/Tiranga-Game-Invite-Code-%E2%80%93-2757419478643-to-Get-%E2%82%B9500-Real-Cash-Bonus-Only-for-New-Users--05-03-2025_02_57_AM.png?Expires=1840829421&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=f7omdZYtc1A-7VgZjiTOt6-B-y1GvutfXQLWQW3J3qBT0Ot4AdSjHxk3gQNrutCNXjSdWRxSyaHIOKXG4wgcGO-xxiNAUyOrwFgVFFrCRrb7CO7zdMUX4CX05zi4hq6TkwRuX2P0N-Bm~OlVPF~uO6T5qZLKUlxZAcIAc1qR0R3yOdzPSr4hckGVvcJjSkfAq0mNMzcL12A7W3pb1A-GdXtcAbiEI1IXIgWBaEaZz8-Iqn1SMI3YU7K0b3dNGYSKVygyy1CL5p2lxEpvLhukarqUsngF4arxC6S07UXpj5lmLuacnfq8XZREa0y49078Mn-OWGz-0zgxpHvz~Vs94w__" alt="Tiranga Game Invite Code" style="max-width: 100%; height: auto;">
+  </a>
+</p>
 Looking for the **Tiranga Game Invite Code - 2757419478643** to join the platform instantly and start earning real cash? You’re in the right place! This guide will walk you through everything from using the **Tiranga Invite Code - 2757419478643**, the **Tiranga Game Register** process, and how to maximize your experience with real rewards.
 
 
