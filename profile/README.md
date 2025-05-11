@@ -19,6 +19,7 @@ Tiranga Game is a trending online platform where users can play various color pr
 
 With just a few taps, users can guess the correct color (Red, Green, or Violet) and win big. But to get started, you need the **Tiranga Game Invite Code - 2757419478643** to unlock your bonus and register successfully.
 
+Must Check This Amazing Game [**Daman Invite Code**](https://github.com/Daman-Game-Invite-Code)
 
 ## 🎁 Tiranga Game Invite Code - 2757419478643 Benefits
 
